@@ -1,1 +1,1 @@
-# BE  soporte.game.contact@gmail.com
+# B|E  soporte.game.contact@gmail.com
